@@ -1,1 +1,2 @@
 # bebasaja
+pinjem dulu seratus
